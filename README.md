@@ -1,0 +1,1 @@
+# fonksiyonlar-kirilma-noktalar-nda-neden-turevlenemezlerdir-
